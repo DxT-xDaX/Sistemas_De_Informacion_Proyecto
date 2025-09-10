@@ -1,1 +1,1 @@
-# Sistemas_De_Informacion_Proyecto
+# Sistemas_De_Información_Proyecto
